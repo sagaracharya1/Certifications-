@@ -1,2 +1,2 @@
 # Certifications- Skills
-Certification 
+Certifications Detail
